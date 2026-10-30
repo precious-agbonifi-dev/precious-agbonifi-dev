@@ -6,7 +6,7 @@
 
 With experience spanning **Virgin Media O2**, **Greater London Authority**, **MOPAC**, **The British Library**, and **Queen Mary University of London**, I bring a rare combination of deep technical expertise and strategic leadership that helps organisations deliver resilient, compliant, and scalable technology.
 
-**Open to:** Senior roles (£80k–£120k) · Permanent & Contract · London & Remote
+**Open to:** Senior roles · Permanent & Contract · London & Remote
 
 ---
 
